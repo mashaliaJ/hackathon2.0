@@ -89,3 +89,7 @@ Empowering learning with AI-powered explanations, video lessons, and friendly gu
 
 ---
 
+- ## Pitch Deck
+- https://www.canva.com/design/DAGsKXxQjZ8/GIL10d0OustChpaapmU6kg/edit?utm_content=DAGsKXxQjZ8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+  ---
